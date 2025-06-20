@@ -1,1 +1,1 @@
-# smmer-school-day-1
+# Smmer-School-Day-1
